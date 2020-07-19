@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi I'm there 👋
+### be happy everyday ✨
 
 <!--
 **liaozhifeng/liaozhifeng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
